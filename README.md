@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **java**
 
-- 🤝 I’m looking for help with **everyone**
+- 🤝 I’m looking forward to help with **everyone**
 
 - 💬 Ask me about **everything**
 
